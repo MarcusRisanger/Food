@@ -15,7 +15,7 @@ This recipe is quite simple since you don't need to multitask. You make soffritt
 * 300 g pancetta
 * 90 g tomato paste
 * 1200 g chopped tomatoes (e.g. [Mutti Polpa])
-* Fruity red wine (e.g. [Baffo Rosso])
+* Cheap, fruity chianti (e.g. [Baffo Rosso])
 * 50 g Dairy butter
 * Salt
 
