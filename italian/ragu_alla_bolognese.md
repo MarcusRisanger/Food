@@ -65,7 +65,7 @@ This recipe is quite simple since you don't need to multitask. You make soffritt
 * Use hand minced chuck steak instead of beef mince
 * Use hand minced pork neck instead of pork mince
 * Use bacon instead of pancetta in a pinch...
-* Use 1 fennel instead of the yellow onion if you are onion intolerant.
+* Use 1 fennel instead of the yellow onion if you are onion intolerant. Just use the "white meaty part".
 
 
 [Mutti Polpa]: https://mutti-parma.com/products/polpa/
