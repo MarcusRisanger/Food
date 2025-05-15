@@ -4,18 +4,18 @@ By [/u/texnessa](https://old.reddit.com/r/Cooking/comments/ixl88q/american_dishe
 
 ## Ingredients
 
-* 2kg beef chuck shoulder in 2cm cubes
+* 2 kg beef chuck shoulder in 2cm cubes
 * 8-10 dried Pasilla, New Mexico or similar chiles- whatever floats your boat
-* 250g slab bacon lardons
-* 250g Spanish onion- small dice
+* 250 g slab bacon lardons
+* 250 g Spanish onion- small dice
 * 3 cloves garlic, finely chopped
 * 250 ml brewed coffee
 * Six-pack of Shiner Bock beer
 * 50g Gebhardts chili powder- taste and adjust as you go with the dry spices
-* 40g ground cumin
-* 20g Mexican oregano
-* 40g masa harina
-* 2L beef stock
+* 40 g ground cumin
+* 20 g Mexican oregano
+* 40 g masa harina
+* 2 L beef stock
 * Canola oil
 * Salt and pepper
 
